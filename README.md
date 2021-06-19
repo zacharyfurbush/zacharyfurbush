@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Zachary
+- 👀 I’m interested in rockets, video games, cars, planes, anything techical or STEM related.
+- 🌱 I’m currently studying at ERAU in Daytona Beach, FL for Aerospace Engineering
+- 📫 To reach me use my email zacharyfurbush@gmail.com, or my Discord zachary#3813
